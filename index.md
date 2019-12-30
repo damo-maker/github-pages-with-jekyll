@@ -1,3 +1,3 @@
-# Hi, my name is Damian,
+# Hi, I'm Damian,
 
-I'm glad you are here. I plan to talk about anything ... From the everyday to the extraordinary> Things about art, deaign, the environment, culture and politics. Sometimes it will be carefully curated and at other times, all mashed together, juxtoposing ideas and topics, to continually explore, challenge, learn and discover. 
+I am glad you are here. I plan to talk about, just about anything ... From the everyday to the extraordinary. Things like art, deaign, the environment and other social concerns. Sometimes it will be carefully curated and at other times, all mashed together, juxtoposing ideas and topics, to hopefully explore, challenge, learn and discover. 
